@@ -1,0 +1,4 @@
+# strah
+# freddy-fazber
+# -
+# igra
